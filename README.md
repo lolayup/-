@@ -1,4 +1,4 @@
-راجع البوست ده فيه معلومات كويسه عن التجنيد في مصر: https://www.facebook.com/Youcannotforcefulbutyoucanconvinceme/posts/195606570573478/?locale=ar_AR
+راجع البوست ده فيه معلومات كويسه عن التجنيد في مصر: https://www.facebook.com/Youcannotforcefulbutyoucanconvinceme/posts/195606570573478/
 
 **ملف word إقرار استدعاء تعبئة مكتب تجنيد المنصورة**
 
